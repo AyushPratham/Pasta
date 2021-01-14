@@ -1,0 +1,1 @@
+Boil water in a pan. Put the pasta in it and wait until the pasta is tender. After pasta is tender place it in another bowl. Put the butter and cheese with the pasta and mix them. Add the pepper and chilli flakes in the end and you are done.
